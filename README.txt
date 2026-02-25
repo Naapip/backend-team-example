@@ -1,1 +1,1 @@
-helloo wassupp
+535230215 OSCAR ELMANDER KUSUMA 
